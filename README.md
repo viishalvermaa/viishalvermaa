@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **verma.vishal3010@gmail.com**
 
-- 📄 Resume [https://drive.google.com/file/d/1-m6FbplJkgDqwcfX7AKPvORRWC3kAGMy/view?usp=drive_link](https://drive.google.com/file/d/1-m6FbplJkgDqwcfX7AKPvORRWC3kAGMy/view?usp=drive_link)
+- 📄 Resume https://drive.google.com/file/d/1-GyE26RqBz-Tu54oyfHpeaHyzupI1d-5/view?usp=drive_link
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
